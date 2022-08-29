@@ -1,2 +1,2 @@
-🆔 she/her/hers<br/>
+🆔 she/her<br/>
 🌐 Frontend dev at Bandwidth <br/>
